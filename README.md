@@ -1,4 +1,4 @@
-### Archmagos Logis Ioannes Marcus Ictius, cognomine Latus (WideSwing)
+### Magos Logis Ioannes Marcus Ictius, cognomine Latus (WideSwing)
 `designation 01010111-01010011`
 
 Loyal Knight of the Ideal and Whole Binary Law,\
