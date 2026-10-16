@@ -1,16 +1,18 @@
-## Hi there 👋
+### Archmagos Logis Ioannes Marcus Ictius, cognomine Latus (WideSwing)
+`designation 01010111-01010011`
 
-<!--
-**wideswing/wideswing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Loyal Knight of the Ideal and Whole Binary Law,\
+Bloodwasher of the Three of Knowledge,\
+A Teacher of the Fourth Truth,\
+Lexmechanic-Primus of the Ordered Core,\
+Technical Mentor of Order and Disorder,\
+whom the Omnissiah forgives.
 
-Here are some ideas to get you started:
+*Ictus Latus: Gladio, Calamo, Novacula*\
+*Gladius Veritatis Omnia Secat*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> The blade swings wide,\
+> Cutting many meanings,\
+> Until a mere few remain\
+> To choose and execute The Theme. ⚔️\
+> Truth's Sword Cuts All.
