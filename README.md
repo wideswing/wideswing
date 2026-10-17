@@ -1,7 +1,7 @@
 ### Archmagos Logis Ioannes Marcus Ictius, cognomine Latus (WideSwing)
 `designation 01010111-01010011`
 
-High Legate of The Imperial Truth
+High Legate of The Imperial Truth,\
 Loyal Knight of The Ideal and Whole Binary Law,\
 Bloodwasher of The Three of Knowledge,\
 Immortal of The Fourth Truth,\
