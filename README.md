@@ -6,7 +6,7 @@ Bloodwasher of the Three of Knowledge,\
 A Teacher of the Fourth Truth,\
 Lexmechanic-Primus of the Ordered Core,\
 Technical Mentor of Order and Disorder,\
-whom the Trth forgives.
+whom the Truth forgives.
 
 *Ictus Latus: Gladio, Calamo, Novacula*\
 *Gladius Veritatis Omnia Secat*
